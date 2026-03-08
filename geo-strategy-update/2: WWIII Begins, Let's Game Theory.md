@@ -1,5 +1,4 @@
-# [Geo-Strategy Update #2: WWIII Begins, Let's Game Theory
-](https://www.youtube.com/watch?v=N4cs-8mrP_s&list=PLREQ8S3NPaQteAcAe8HjiFypAhnUiLbyu&index=2)
+# [Geo-Strategy Update #2: WWIII Begins, Let's Game Theory](https://www.youtube.com/watch?v=N4cs-8mrP_s&list=PLREQ8S3NPaQteAcAe8HjiFypAhnUiLbyu&index=2)
 
 Ladder of escalation - a conflict will always escalate.
 

@@ -1,5 +1,4 @@
-# [Civilization #1: Explaining Humanity's Transition to Agriculture
-](https://www.youtube.com/watch?v=Jjqf9T59uY0)
+# [Civilization #1: Explaining Humanity's Transition to Agriculture](https://www.youtube.com/watch?v=Jjqf9T59uY0)
 
 Traditional interpretation: hunters and gatherers, then farming and domestication took place. And now more food then needed is created. Now people can do more than food searching. So now we have leaders, priests, arts.
 

@@ -1,5 +1,4 @@
-# [Geo-Strategy #11: The Second American Civil War
-](https://www.youtube.com/watch?v=Go1bMQKnJBQ)
+# [Geo-Strategy #11: The Second American Civil War](https://www.youtube.com/watch?v=Go1bMQKnJBQ)
 
 US 600 million weapons, 1.3 per person. 2nd amendment. American Football the most played in US and the most violent sport. Americans worship history of their wars.
 

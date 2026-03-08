@@ -1,5 +1,4 @@
-# [Geo-Strategy END: Psychohistory (The Science of Imagining the Future)
-](https://www.youtube.com/watch?v=s_k6esWheqA)
+# [Geo-Strategy END: Psychohistory (The Science of Imagining the Future)](https://www.youtube.com/watch?v=s_k6esWheqA)
 
 Isaac Asimov "Foundation". Psychohistory - the future can be predicted and therefore influenced.
 

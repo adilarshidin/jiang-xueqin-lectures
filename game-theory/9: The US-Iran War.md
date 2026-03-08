@@ -1,5 +1,4 @@
-# [Game Theory #9: The US-Iran War
-](https://www.youtube.com/watch?v=jIS2eB-rGv0)
+# [Game Theory #9: The US-Iran War](https://www.youtube.com/watch?v=jIS2eB-rGv0)
 
 1. Ayatolla died a martyr.
 2. Israelis struck a school.

@@ -1,5 +1,4 @@
-# [Geo-Strategy #4: Saudi Arabia's Trump Card Against Iran
-](https://www.youtube.com/watch?v=LctUcVqhhns)
+# [Geo-Strategy #4: Saudi Arabia's Trump Card Against Iran](https://www.youtube.com/watch?v=LctUcVqhhns)
 
 3rd and final force driving conflict in Middle East.
 

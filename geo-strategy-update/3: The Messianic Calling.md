@@ -1,5 +1,4 @@
-# [Geo-Strategy Update #3: The Messianic Calling
-](https://www.youtube.com/watch?v=bc9adtiIN_k&list=PLREQ8S3NPaQteAcAe8HjiFypAhnUiLbyu&index=3)
+# [Geo-Strategy Update #3: The Messianic Calling](https://www.youtube.com/watch?v=bc9adtiIN_k&list=PLREQ8S3NPaQteAcAe8HjiFypAhnUiLbyu&index=3)
 
 Each of the leaders of US, Israel and Iran in this war see themselves as saviours of their nations called by God to deliver the nation.
 

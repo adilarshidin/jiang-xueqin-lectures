@@ -1,5 +1,4 @@
-# [Geo-Strategy #9: Putin's War for the Soul of Russia
-](https://www.youtube.com/watch?v=AEPSUC-UQ5k&t=1220s)
+# [Geo-Strategy #9: Putin's War for the Soul of Russia](https://www.youtube.com/watch?v=AEPSUC-UQ5k&t=1220s)
 
 Societal structure must give structure, meaning and purpose or the society is artificial/non-existant.
 War, religion, civilization are what can be used to give the society structure.
