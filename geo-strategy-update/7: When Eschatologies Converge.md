@@ -23,6 +23,8 @@ Eschatology provides the best coordination and energy for game theory formula. P
 6. Christian Catholic. St. Augustin argues that the Church is the messianic age, because it steps out of history and ensures peace. Before anglo-american hegemon the catholic church was the hegemon. It was the messianic epoch and we ruined and threw it away. The opponents are protestants, nation states (they reverse the order and place state above the church),
 modernity (cult of individual, multiculturalism, materialism, hedonism).
 
+7. Transhumanism. Advance of science will allow to live forever. AI and robots will replace human labor. Ultimately, humans as a race will achieve singularity with machines and cease to exist.
+
 ## Convergence points
 
 1. War in the Middle East.
