@@ -7,3 +7,7 @@ It is important to note that it is not a transcript, but rather a compendium wit
 ## Note on missing lections
 
 Some lections are not included (for example geo-strategy 5-7) because they focused on the upcoming events at the time, which for us have already passed and have no other educational value.
+
+## Note on other materials
+
+**other** directory contains compendiums from other sources.
