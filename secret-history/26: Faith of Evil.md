@@ -54,7 +54,7 @@ His reasoning is that he is a messiah who came to redeem the jews that converted
 
 Here comes the idea of justification by sin. Argument is that in messianic age the law does not apply because the jews already have the wisdom to follow their own laws. So doing this you are no longer constrained by nothing but your own faith in god.
 
-A lot of jews abandon him but few families convert. These families are called doma. They will control Turkey, Mustafa Ataturk is a doma.
+A lot of jews abandon him but few families convert. These families are called donmeh. They will control Turkey, Mustafa Ataturk is a donmeh.
 
 ## Jacob Frank
 
