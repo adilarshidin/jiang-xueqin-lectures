@@ -55,7 +55,7 @@ Tabletop game example. Countries with nothing get to top place because they have
 
 ## Metrics
 
-Ibn Khaldun proposed that such cultures are more cohesive and energetic that's why they prevail opposed to wealthy ones.
+Ibn Khaldun proposed "assabiah" - the concept that such cultures are more cohesive and energetic that's why they prevail opposed to wealthy ones.
 
 * Energy
 * Openness
